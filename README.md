@@ -1,0 +1,1 @@
+# risiko-gempa-bumi
